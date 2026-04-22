@@ -1,4 +1,4 @@
-# 🎙️ Bety: The Privacy-First Universal Dictator
+# 🎙️ Bety: The Privacy-First Universal Dictator (OPTIMIZED FOR WINDOWS)
 
 <div align="center">
 
